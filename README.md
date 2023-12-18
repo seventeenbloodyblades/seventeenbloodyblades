@@ -15,3 +15,5 @@ she is interested in web & ui / ux design, psychology, internet & social network
 ## katrine's world
 katrine's childhood was not the most prosperous. her parents were cruel to her - katrine received little attention, care and warmth. she was constantly punished for the slightest misbehavior, and for any merits she received only silence in return. the family was poor and so she never knew the feeling of safety, she thought that no one needed her as she was never given gifts or kind words. but one day everything changed. she found **him**.\
 katrine always was kind, empathy, cute and naive, because she trust people, but the real world makes her hide all this, as people take advantage of it. from the outside she looks like a boring and uninteresting girl who doesn't need anyone and is bored with everyone, but there's a huge world buried inside her that needs to be ignited by the one and if he does, she will shine. all of this is hidden behind a shroud of mental illness and depression and only **he** can help her.
+
+![koibito](https://koibito.qweme.dev/@arcatrine?theme=rule34&length=3&scale=1)
